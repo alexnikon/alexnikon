@@ -1,4 +1,4 @@
-### Hi there 👋
+### I’m currently learning what to do...
 
 <!--
 **alexnikon/alexnikon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
